@@ -1,1 +1,1 @@
-shell prompt
+God is great
